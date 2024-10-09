@@ -1,4 +1,4 @@
 - Thanks for using my Cheat,
 - Please drag the following cheat and put it in ur Dowloads.
-- If you have any questions, Feel free to open a ticket!
+- If you have any questions, Feel free to open a ticket in https://discord.gg/mCr7XFXjkh !
 - Enjoy.
